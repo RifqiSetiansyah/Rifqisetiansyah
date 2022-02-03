@@ -22,8 +22,9 @@ Ini adalah kisah ku dimana kehidupan ku seperti Land of Down.
 
 
 
+![IMG_20201004_213036_061](https://user-images.githubusercontent.com/98930321/152365520-15adddcb-ad7b-44f2-96a1-c29ee9e78ecf.jpg)
 
-![1642814240455](https://user-images.githubusercontent.com/98930321/152362162-011b9e89-5c82-4b56-bd3e-fd24d8c91bdf.jpg)
+
 
 
 
