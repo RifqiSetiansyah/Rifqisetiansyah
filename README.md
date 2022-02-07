@@ -15,7 +15,7 @@ Ini adalah kisah ku dimana kehidupan ku seperti Land of Down.
 
 # Jadilah payung untuk orang yang tidak menyukai hujan
 ## Tapi aku sayang kamu
-### Rindu mba R
+### Rindu yakan
 
 
 
